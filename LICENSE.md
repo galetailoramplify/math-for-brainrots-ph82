@@ -1,4 +1,4 @@
-#  
+#  math for brainrots automatic Scripts offers the most advanced math for brainrots Script, with auto-upgrade and anti-ban. Perfect for dominating any
 
 
 
